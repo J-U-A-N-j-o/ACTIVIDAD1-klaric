@@ -1,1 +1,0 @@
-# ACTIVIDAD1-klaric
